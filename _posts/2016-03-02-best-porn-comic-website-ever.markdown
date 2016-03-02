@@ -3,7 +3,7 @@ published: true
 title: Best Porn Comic website ever
 layout: post
 tags: [comics, porn, comics, adult, comics, xxx, comics, ]
-permalink: free porn comics
+permalink: free-porn-comics
 ---
 There are tons of websites that offer free porn comics, but I fell in love with svscomics.org.
 It's pretty basic if you browse it as a user, but once you register things become much more interesting indeed. 
