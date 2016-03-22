@@ -2,6 +2,7 @@
 published: true
 title: Best Free Porn Comic Categories of the Day
 layout: post
+tags: [porn, sex, starwars, xxx, adult, comics]
 ---
 http://svscomics.org/category/royal+koyanagi​ - hot hentai incest comics.
 http://svscomics.org/category/innocent+dickgirls - comics with shemales, dickgirls, futanari babes.
